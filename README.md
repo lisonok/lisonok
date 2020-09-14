@@ -1,4 +1,4 @@
-### Hi there, I'm Mikhail - aka Proud Russian Fox :ru: :fox_face:
+### Hi there, I'm Mikhail - aka Proud Russian Fox :ru::fox_face:
 
 Here are some ideas to get you started:
 
